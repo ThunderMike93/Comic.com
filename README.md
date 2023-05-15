@@ -1,1 +1,1 @@
-# mjl.com
+# comic.com
